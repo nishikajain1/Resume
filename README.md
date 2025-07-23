@@ -1,4 +1,4 @@
-# Resume
+# Resume:
 
+[nishikajain.pdf](https://github.com/user-attachments/files/21394531/nishikajain.pdf)
 
-[Nishika_Jain_Resume.pdf](https://github.com/user-attachments/files/20157573/Nishika_Jain_Resume.pdf)
